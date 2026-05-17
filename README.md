@@ -59,7 +59,7 @@ A smart monitoring system designed to analyze and reduce railway traffic congest
 
 ## 📫 Connect With Me
 
-- LinkedIn: [Divyanshu](https://www.linkedin.com/in/divyanshu-45b902356)
+- LinkedIn: [Divyanshu](www.linkedin.com/in/divyanshu-⠀-45b902356)
 - Email: pahwadivyanshu02@gmail.com
 
 ---
